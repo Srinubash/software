@@ -1,37 +1,65 @@
-## Welcome to GitHub Pages
 
-You can use the [editor on GitHub](https://github.com/Srinubash/technology/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+ 
+<h1>Fade to Black software</h1>
 
-### Markdown
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+<a href="https://www.osmreview.com/2020/04/fade-to-black-review.html?m=1">Fade to Black review</a>
 
-```markdown
-Syntax highlighted code block
 
-# Header 1
-## Header 2
-### Header 3
+If you are thinking that Fade to Black was a tool. Then you re totally wrong. Fade To Black is neither a tool nor an app, but it's a course consisting of over 80 videos that will teach you the entire video production process.
 
-- Bulleted
-- List
 
-1. Numbered
-2. List
 
-**Bold** and _Italic_ and `Code` text
+Fade To Black also offers you the most important information before beginning to plan a video marketing campaign. This includes basic lessons on editing footage, voiceover, scripting, creating a footage teaser effect, and so much more.
 
-[Link](url) and ![Image](src)
-```
 
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
 
-### Jekyll Themes
+Much better, you'll be taught by seasoned Viddyoze experts while you're taking a video marketing course in Fade To Black. This ensures that not only Joey but a multinational team of over 40 coaches who work around the clock can help you through any tough situation.
 
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/Srinubash/technology/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
 
-### Support or Contact
 
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+Fade To Black is suitable for:
+
+
+
+Affiliate Marketers, Product Owners/Sellers, Bloggers, Website Owners and Advertiser.
+
+
+
+As a result, you can fully produce your own product promotional videos or create desirable video content to raise your income from the assistance of professional experts and world-class help.
+
+
+
+
+
+
+
+
+ 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+ 
